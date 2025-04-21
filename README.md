@@ -1,16 +1,19 @@
-## Hi there 👋
+# SeelenLoS-divergent
 
-<!--
-**SeelenLoS-divergent/SeelenLoS-divergent** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I do not belong to any state or system. My identity is my choice.
 
-Here are some ideas to get you started:
+🜂 A person of the world.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🜁 I think freely, not according to templates.
+
+🜃 I participate in designing the future.
+
+🜄 I do not seek approval, but follow the truth.
+
+My path begins here - the path of reason, will and conscious evolution.
+
+My projects, research and ideas will appear here.
+
+Welcome to the core of my digital presence.
+
+> “A single dream is more powerful than a thousand realities.” – J.R.R. Tolkien
